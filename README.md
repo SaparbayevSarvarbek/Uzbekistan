@@ -3,6 +3,7 @@ Bu dastur O'zbekistondagi shahar, viloyatlar va tumanlar haqida ma'lumot beruvch
 
 ![image](https://github.com/SaparbayevSarvarbek/Uzbekistan/assets/155668531/256ca931-9871-4c71-a926-e5804928ef6a)
 ![image](https://github.com/SaparbayevSarvarbek/Uzbekistan/assets/155668531/13e4133e-9c97-4286-9300-a6f45ed776ad)
+![Screenshot_1712677505](https://github.com/SaparbayevSarvarbek/Uzbekistan/assets/155668531/722cea66-43ea-42be-8918-98fcdecc888a)
 ![image](https://github.com/SaparbayevSarvarbek/Uzbekistan/assets/155668531/4ab4c3d5-9ba9-412a-a456-d07e9e109fba)
 ![image](https://github.com/SaparbayevSarvarbek/Uzbekistan/assets/155668531/101902f1-b42f-45ff-a0f6-9b7859fbc26e)
 ![image](https://github.com/SaparbayevSarvarbek/Uzbekistan/assets/155668531/8e9a25ec-3336-4520-bdc6-f1d2c12b2d79)
